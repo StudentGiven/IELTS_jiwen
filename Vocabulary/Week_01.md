@@ -15,7 +15,7 @@
 
 
 # 2020.09.29
-
+Presidential debate, take a day off.
 
 
 # 2020.09.30
