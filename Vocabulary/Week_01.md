@@ -23,7 +23,7 @@ Presidential debate, take a day off.
 
 
 # 2020.10.01
-
+气胸又回来了，难受
 
 
 # 2020.10.02
